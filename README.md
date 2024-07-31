@@ -24,7 +24,7 @@ I am an aspiring software programming enthusiast on the lookout for an internshi
 
 Let's connect and explore the possibilities! Feel free to reach out .
 
-Thank you! 🚀
+Thank you!🚀
 
 ## Gmail: kasamsettysaidhanush03@gmail.com
 
